@@ -8,6 +8,7 @@
 
 # SOFTWARE REQUIRED 
 
+![WhatsApp Image 2025-11-22 at 19 15 24_8a3d5044](https://github.com/user-attachments/assets/7f3d1cf6-af3f-4450-8a69-a48c120cf305)
 
 # THEORY
 
